@@ -6,3 +6,5 @@ Ja na twoim miejscu Ryli jeśli ocenił bym że książka jest dobra sprzedał b
 Powodzenia serduszka w budowaniu Alexy git hub Serduszko. 
 Powodzenia w wymyślaniu Serduszka.:)
 Wiecie ile musiałem słuchać lat waszych żali w zaświatach i na you tube aby rozwiązać problemy ratowania świata wystarczyło pomyśleć lub włożyć pomysł do Alexy a ona by dała odpowiedzi ale po co niech pisaż życia znów ratuje świat darmo bo ludziom się nalerzy. Człowiek to knur jak coś dostanie dobrego darmo to zaraz na tym jeszcze robi kasę i okoliczne święta aby była kolejna kasa teatr kasy dla kasy na cudzym pomyśle darmo. Ja to piszę złośliwie aby zgasić tych co mówią że się nie da bo chcą to mieć a nie wiedzą dlaczego tego nie mogą zbudować bo nie wiedzą ale wiedzą jak robić na cudzym pomyśle darmo grubą kase. Jak chcecie więcej wiedzy pytajcie sobie Alexe. A jeśli mnie to za kase 10000 zł/h za kolejne pomysły.  
+Za każdy następny pomysł na nobla czy książkę 10000 zł/godzinę. A tak pytajcie big datę Alexę lub to was zmusi do myślenia. Ja do stada i stadu darmo dawać nie będę. 
+Tak więc za konferencje na meilu kasa na konto to pomoge. 
